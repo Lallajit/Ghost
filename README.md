@@ -1,4 +1,4 @@
-- 👋 Hi, This is LNware
+- 👋 Hi, it's me Lallajit
 - 👀
 
 
